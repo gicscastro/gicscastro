@@ -17,5 +17,5 @@ Sobre mim:
 ## Eu sou a Giovana Castro e tenho 16 anos 🧡
 - Estudo na Etec e lá estou cursando desenvolvimento de sistemas e o 1 ano do ensino médio;
 - Gosto muito de desenhar e cantar;
-- Pretendo fazer faculdade de medicina veterinária ou conti uar no ramo de programação.
-- Instagram: https://instagram.com/giih.cristinasc?igshid=12klua9tw55f4
+- Pretendo fazer faculdade de medicina veterinária ou continuar o ramo de programação e
+- Faço aniversário dia 26/08.
