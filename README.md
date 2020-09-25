@@ -15,9 +15,9 @@ Sobre mim:
 - ⚡ Fun fact: ...
 -->
 ## Eu sou a Giovana Castro e tenho 16 anos 🧡
-- ✍ Estudo na Etec e lá estou cursando desenvolvimento de sistemas e o 1 ano do ensino médio;
+- ✍ Estudo na Etec e lá estou cursando desenvolvimento de sistema e o 1 ano do ensino médio;
 - 🤪 Gosto muito de desenhar e cantar
-Esses são dois dos desenhos que já fiz:
+-Esses são dois dos desenhos que já fiz:
 https://photos.app.goo.gl/xRY1sNn1MaB3498Y8
 https://photos.app.goo.gl/GV3cvBaoCB2wsnpM6
 - 🐶 Pretendo fazer faculdade de medicina veterinária ou continuar o ramo de programação e
