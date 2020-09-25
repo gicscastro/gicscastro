@@ -19,3 +19,6 @@ Sobre mim:
 - Gosto muito de desenhar e cantar;
 - Pretendo fazer faculdade de medicina veterinária ou continuar o ramo de programação e
 - Faço aniversário dia 26/08.
+Esse é um dos desenhos que fiz:
+https://photos.app.goo.gl/xRY1sNn1MaB3498Y8
+https://photos.app.goo.gl/GV3cvBaoCB2wsnpM6
